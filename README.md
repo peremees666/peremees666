@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @isa666
+- 👀 I’m interested in FiveM scripting.
+- 🌱 I’m currently learning HTML.
+- 📫 How to reach me DISCORD: papz666.
