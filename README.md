@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @isa666
 - 👀 I’m interested in FiveM scripting.
-- 🌱 I’m currently learning HTML.
+- 🌱 I’m currently working on a FiveM server l Vabariik Roleplay l vbrkrp.ee.
 - 📫 How to reach me DISCORD: papz666.
